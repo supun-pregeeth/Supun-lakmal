@@ -1,4 +1,4 @@
-# Hi there, I'm Supun 👋
+# Hi there, I'm Supun 
 
 💻 **Computer Engineering Student | Freelancer | Tech Enthusiast**
 
